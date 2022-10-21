@@ -1,0 +1,4 @@
+- 👋 salam, mən @n4047z
+- 👀 maraqlarım proqramlaşdırmadan əlavə Harry Potterdir.
+- 🌱 Hal-hazırda Python və C++ öyrənirəm.
+- 📫 Mənimlə əlaqə: t.me/katletcorey
